@@ -12,4 +12,4 @@ I enjoy automating workflows, optimizing infrastructure, and building scalable s
 ## 📫 Contact me
 
 - LinkedIn: [your-name](https://linkedin.com/in/your-url)
-- Email: yourname@example.com
+- Email: ghuycv22@gmail.com
